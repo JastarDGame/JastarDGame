@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Java and Python
 - 💞️ I’m looking to collaborate in CISCO or Nintendo
 - 📫 How to reach me: jimenezvazquezjurgenjared6@gmail.com
-- 😄 Pronouns: Jorgen, Mochito, Ja or Jorgen 
+- 😄 Pronouns: He
 - ⚡ Fun fact: I dream of working at Nintendo and I continue fighting for it
 
 <!---
